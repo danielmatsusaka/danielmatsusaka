@@ -1,7 +1,7 @@
 
-# The Devil's Lance Code
 
-* 🔭 PhD student, Lic Biology, Data science, Biotechnologist, Farmer 👺 
+
+* 🔭 PhD, Lic Biology, Data science, Biotechnologist, Farmer 👺 
 * 🌱 working at IFEVA-UBA[Link a Google](http://www.ifeva.edu.ar/) 🌲🌲🌲 
 * 😄 You can cheak out my Instagram instagram.com/daisukematsusaka 
 * 🏫 Assistant for plant physiology and Eco-physiology Agronomia UBA 🍓
