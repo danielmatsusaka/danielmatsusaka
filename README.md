@@ -5,6 +5,12 @@
 * 🌱 working at IFEVA-UBA[Link a Google](http://www.ifeva.edu.ar/) 🌲🌲🌲 
 * 😄 You can cheak out my Instagram instagram.com/daisukematsusaka 
 * 🏫 Assistant for plant physiology and Eco-physiology Agronomia UBA 🍓
+* Publications:
+  https://pubmed.ncbi.nlm.nih.gov/34367202/
+  https://pubmed.ncbi.nlm.nih.gov/36161012/
+  https://pubmed.ncbi.nlm.nih.gov/35526232/
+  https://pubmed.ncbi.nlm.nih.gov/37616016/
+  
 ## Skill and Experience 
 
 * 📚 Research # Natural Variation in Arabidopsis, What Has Natural Variation Taught Us about Plant Development, Physiology, and Adaptation? 📑 
